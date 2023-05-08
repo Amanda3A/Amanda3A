@@ -1,5 +1,5 @@
 ### Hi Everyone!! 👋
-Estudante do colégio Idália Rocha
+Estudante do colégio Idália Rocha, Amante de Carros
 Turma: 2A
 
 ![lamborghini-aventador-lambo](https://user-images.githubusercontent.com/127758763/236856421-2363cd50-8103-43f1-af1b-56627f6c8b66.gif)
