@@ -1,4 +1,4 @@
-### Hi Everyone!! 👋
+### Oioi gente!! 👋
 Estudante do colégio Idália Rocha, Turma: 3A &
 Car Lover!!
 
